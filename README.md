@@ -1,5 +1,3 @@
-SRE in Stubhub
-
 
 Grade 5, Primary School.
 
